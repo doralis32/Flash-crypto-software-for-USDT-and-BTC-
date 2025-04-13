@@ -27,4 +27,5 @@ Today I'm here to introduce New Update Version Of BTC Transaction Core Network F
 ✅ Windows system, 7 or later
 ✅ RAM memory: at least 4GB  
 Properties of flash btc...  * Tradable  * Splitable * Transferable * Duration in the wallet 45days  * Full confirmation
+# HOW TO GET SOFTWARE
 To Grab the software massage me on telegram now https://t.me/Nova_software_king
