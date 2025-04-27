@@ -6,6 +6,7 @@ Explore one of the most powerful software ever built and experience a major shif
 # How to install
 
 📌 Announcement 📣  
+USDT SENDER
 Today I'm here to introduce New Update Version Of BTC Transaction Core Network Full Edition 2025.   
 👍 Flash BTC Transaction (Core Network) Full Edition 2024 🔥  
 👉Features     
