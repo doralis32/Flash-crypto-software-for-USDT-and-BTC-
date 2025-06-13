@@ -32,7 +32,15 @@ Properties of flash btc...  * Tradable  * Splitable * Transferable * Duration in
 To Grab the software massage me on telegram now 
 
 send me messages to get a demonstration
-![image](https://github.com/user-attachments/assets/ae833df2-0b66-4cce-be79-fab58dbf86a9)
 
 
 https://t.me/softwarehenry
+### 📩 **Contact Us**  
+- **Telegram:** [@Henryphilip-Software_King](https://t.me/softwarehenry)  
+- **Updates Channel:** [Join Here](https://t.me/Softwarehenry)  
+📨 [Live Chat](https://t.me/softwarehenry)
+
+[LinkedIn](https://www.linkedin.com/in/henry-philip-301487297?trk=contact-info)
+
+🛠️[Developer](https://t.me/softwarehenry
+
